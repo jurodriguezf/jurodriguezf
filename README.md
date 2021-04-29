@@ -10,4 +10,4 @@
 ### Websites I'm on:
 
 - [LinkedIn](https://linkedin.com/in/jurodriguezf)
-- [Behance](https://dribbble.com/gintade) (UI/UX design, mockups, etc)
+- [Behance](https://www.behance.net/gintade) (UI/UX design, mockups, etc)
